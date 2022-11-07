@@ -1,7 +1,4 @@
-
-
-
-:heavy_exclamation_mark: [Dpp 01](https://files.technicalatg.com/HGy24Ed1D)
+[Dpp 01](https://files.technicalatg.com/HGy24Ed1D)
 
 [Dpp 02](https://files.technicalatg.com/C0Nn5qd)
 
